@@ -6,10 +6,12 @@ Creating engaging content for each week of Evangelism Month at King's Gate Unite
 - Activities: Workshops on how to share one's faith, storytelling sessions, and introductory sessions for evangelism training
 
 **Week 2: Community Outreach**
+
 - Summary Description: Emphasize community outreach and service. Activities could involve organizing community service projects, neighborhood clean-ups, or charity events.
 - Activities: Partner with local organizations for community service, host a food drive, or organize a community fair where church members can engage with neighbors.
 
 **Week 3: Youth and Evangelism**
+
 - Summary Description: Focus on youth involvement in evangelism. This could include discussions on how younger church members can contribute to evangelism efforts and special events for youth.
 - Activities: Youth-led service projects, evangelism training tailored for younger members, youth group discussions, and social events.
 
