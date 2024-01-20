@@ -26,3 +26,9 @@ Creating engaging content for each week of Evangelism Month at King's Gate Unite
 - Resources: Provide resources for further reading or learning about evangelism.
 
 > Remember to update each section with specific details about the events, times, locations, and any special guests or speakers. This approach helps in keeping the content dynamic and engaging for all visitors to your website.
+
+
+memory-jog:
+
+
+/c/Users/glads/Downloads/KGUC-EVANGELISM-MONTH-2024
